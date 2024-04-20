@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my wireless connection project
 - 📫 How to reach me phone number: (208)-530-556
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I love t mountain bike
+- ⚡ Fun fact: I love to mountain bike
 
 <!---
 grantromriell/grantromriell is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
